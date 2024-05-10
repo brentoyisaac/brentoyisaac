@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: he/him/his/they
-- ⚡ Fun fact: im a feminine boy33
+- ⚡ Fun fact: im a feminine theistic                  satanist boy33
 
 <!---
 brentoyisaac/brentoyisaac is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
